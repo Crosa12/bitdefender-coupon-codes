@@ -10,7 +10,7 @@
 
 <h2>🔥 78% Off Bitdefender Antivirus Deal (Top Discount Code)</h2>
 
-<p>Get the biggest <strong>Bitdefender discount code</strong> available right now — <a class="btn" href="https://www.bitdefender.com" rel="nofollow">up to 78% off</a> on selected plans. This coupon code is automatically applied when you visit the official page and choose a long-term subscription.</p>
+<p>Get the biggest <strong>Bitdefender discount code</strong> available right now — <a class="btn" href="https://consumersonline.store/Bitdefender/" rel="nofollow">up to 78% off</a> on selected plans. This coupon code is automatically applied when you visit the official page and choose a long-term subscription.</p>
 
 
 <a href="https://consumersonline.store/Bitdefender/" rel="nofollow">
@@ -51,7 +51,7 @@
 
 <h2>💡 50% Off Bitdefender Promo Code</h2>
 
-<p>This <strong>Bitdefender promo code</strong> gives a flat <a class="btn" href="https://www.bitdefender.com" rel="nofollow">50% discount</a> for users who prefer shorter subscriptions or entry-level protection plans.</p>
+<p>This <strong>Bitdefender promo code</strong> gives a flat <a class="btn" href="https://consumersonline.store/Bitdefender/" rel="nofollow">50% discount</a> for users who prefer shorter subscriptions or entry-level protection plans.</p>
 
 <a href="https://consumersonline.store/Bitdefender/" rel="nofollow">
 <img width="2362" height="306" alt="bitdefender-premium-50" src="https://github.com/user-attachments/assets/1f478f29-26f7-4ebf-9030-a2f690482db4" />
